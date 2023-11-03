@@ -1,3 +1,4 @@
 # Portfolio
 
-![image](https://github.com/ThisisNikkk/Portfolio/assets/113753784/4e0058f9-780b-4849-928f-e100edcaca60)
+![image](https://github.com/ThisisNikkk/Portfolio/assets/113753784/e859b955-d0c0-485e-bcc1-b417636edbd6)
+
